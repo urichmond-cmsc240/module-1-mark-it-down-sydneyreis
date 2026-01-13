@@ -2,3 +2,15 @@
 [REPLACE ME!] 
 
 Add your profile details here
+
+# Sydney Reis
+**sreis**
+**sydneyreis**
+*she/her*
+*2028*
+*Mathematical Economics*
+![alt text](https://drive.google.com/drive/recent?dmr=1&ec=wgc-drive-hero-goto)
+1. spending time with friends
+2. reading 
+3. listening to music 
+[MY URL] (https://www.youtube.com/watch?v=sElE_BfQ67s)
