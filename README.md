@@ -8,7 +8,7 @@
 *she/her*
 *2028*
 *Mathematical Economics*
-![alt text](/Users/sydneyreis/Desktop/module-1-mark-it-down-sydneyreis/IMG_2854.jpg)
+![alt text](IMG_2854.jpg)
 
 
 1. spending time with friends
